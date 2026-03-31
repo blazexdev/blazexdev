@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔸Name : Abhay<br>🔹Age : 20<br>🔸Qualifications : Diploma in Computer Science<br>🔹Current Status : Perusing Btech in AI ML from CGC <br>🔸Focused on my work!<br>🔹Love to learn new TECH 
+🔸Name : Abhay<br>🔹Age : 21<br>🔸Qualifications : Diploma in Computer Science<br>🔹Current Status : Perusing Btech in AI ML from CGC <br>🔸Focused on my work!<br>🔹Love to learn new TECH 
 
 
 ## 🌐 Socials:
